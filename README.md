@@ -1,0 +1,1 @@
+![Image of WOW](https://media.giphy.com/media/26ufdipQqU2lhNA4g/giphy.gif)
